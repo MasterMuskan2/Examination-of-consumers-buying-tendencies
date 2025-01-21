@@ -1,0 +1,1 @@
+# Examination-of-consumers-buying-tendencies
